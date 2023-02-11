@@ -23,3 +23,4 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=oussama-tahri&show_icons=true&theme=dark&title_color=d2d2d2&text_color=ffffff&locale=en" alt="oussama-tahri" /></p>
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=oussama-tahri&theme=dark" alt="oussama-tahri" /></p>
+<h4 align="center">visitors number <br> <img src="https://profile-counter.glitch.me/oussama-tahri/count.svg">  </h4>

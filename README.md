@@ -2,9 +2,9 @@
 
 <br>
 
-- 👨‍💻 Check my portfolio [https://www.tahrioussama.com/](https://www.tahrioussama.com/) 
-- 📫 How to reach me **tahrioussama.ot@gmail.com**
-- 📄 Know more about me [https://drive.google.com/file/d/1LqdgteGjBMibSA6y9i0bnhiVrlybxwvx/view?usp=drivesdk](https://drive.google.com/file/d/1LqdgteGjBMibSA6y9i0bnhiVrlybxwvx/view?usp=drivesdk) 
+- 👨‍💻 Check my portfolio **[https://www.tahrioussama.com/](https://www.tahrioussama.com/)**
+- 📫 How to reach me  **tahrioussama.ot@gmail.com**
+- 📄 Know more about me **[https://drive.google.com/file/d/1LqdgteGjBMibSA6y9i0bnhiVrlybxwvx/view?usp=drivesdk](https://drive.google.com/file/d/1LqdgteGjBMibSA6y9i0bnhiVrlybxwvx/view?usp=drivesdk)**
 
 <br>
 

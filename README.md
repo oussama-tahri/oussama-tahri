@@ -4,7 +4,17 @@
 
 - 👨‍💻 Check my portfolio **[https://www.tahrioussama.com/](https://www.tahrioussama.com/)**
 - 📫 How to reach me  **tahrioussama.ot@gmail.com**
-- 📄 Know more about me **[https://drive.google.com/file/d/1LqdgteGjBMibSA6y9i0bnhiVrlybxwvx/view?usp=drivesdk](https://drive.google.com/file/d/1LqdgteGjBMibSA6y9i0bnhiVrlybxwvx/view?usp=drivesdk)**
+- 📄 Know more about me : 
+
+
+#### (VFR)
+
+**[https://drive.google.com/file/d/1OKxa8au-gegul8oiKaTFrhKdgXVKRf0O/view?usp=drive_link](https://drive.google.com/file/d/1OKxa8au-gegul8oiKaTFrhKdgXVKRf0O/view?usp=drive_link)**
+<br>
+
+##### (VANG)
+
+**[https://drive.google.com/file/d/13WgR5YaEJzOBNS4ot1ago--MsQpfq7Ln/view?usp=drive_link](https://drive.google.com/file/d/13WgR5YaEJzOBNS4ot1ago--MsQpfq7Ln/view?usp=drive_link)**
 
 <br>
 

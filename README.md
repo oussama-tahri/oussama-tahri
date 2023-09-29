@@ -9,13 +9,13 @@
 #### (VFR)
 
 
-**[https://drive.google.com/file/d/1wZYgtH6u8HWnBHVl0PYdvfnp9cmJA8xa/view?usp=sharing](https://drive.google.com/file/d/1wZYgtH6u8HWnBHVl0PYdvfnp9cmJA8xa/view?usp=sharing)**
+**[https://drive.google.com/file/d/1ZFLkfXWlCJG2C3RF_UdJ_wpYuu4eUoes/view?usp=sharing](https://drive.google.com/file/d/1ZFLkfXWlCJG2C3RF_UdJ_wpYuu4eUoes/view?usp=sharing)**
 <br>
 
 ##### (VANG)
 
 
-**[https://drive.google.com/file/d/1AwKErR8RvQLbSz76G41arTOEIQaeNNN6/view?usp=sharing](https://drive.google.com/file/d/1AwKErR8RvQLbSz76G41arTOEIQaeNNN6/view?usp=sharing)**
+**[https://drive.google.com/file/d/1Mb0JuT4SxQc9RiW_GFUw4A3NYNghtIyK/view?usp=sharing](https://drive.google.com/file/d/1Mb0JuT4SxQc9RiW_GFUw4A3NYNghtIyK/view?usp=sharing)**
 
 <br>
 
